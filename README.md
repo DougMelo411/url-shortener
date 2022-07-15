@@ -16,4 +16,4 @@ Algumas informações sobre os vídeos:
 
 Informações pessoais:
 
-- Meu linkedin: https://www.linkedin.com/in/alexiapereira/
+- Meu linkedin: https://www.linkedin.com/in/douglas-pereira-mesquita-melo-08817b200/
